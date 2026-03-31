@@ -1,1 +1,0 @@
-# Resume-Of-Fardin
